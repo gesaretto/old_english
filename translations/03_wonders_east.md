@@ -1,0 +1,3 @@
+## Wonders of the East
+
+A certain place is called Lentibelsinea, in which chickens are begotten, like the ones that are among us, of red color. If any man wishes to take them or or touch them at all, then they immediately burn up all his body. Those  are a strange magic! Then in that place are also begotten wild animals. The animals, when they hear the voice of man, then they flee far. The animals have eight feet and eyes of a witch and two heads. If any man wishes to meddle with them, then they set on fire their bodies. Those are strange animals! In that place are also born similar half-hounds. They are called "cyno-cephali." These have manes of a horse and tusks of a boar and heads of a hound, and their breath is like the flame of fire.
