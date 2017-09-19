@@ -43,3 +43,27 @@
 - I sell to the king as much as [_whatsoever_] I catch, because [_for that_] I am his hunter.
 - What does he sell to you [_give you_]?
 - He clothes me well and feeds me, and sometimes sells to me a horse or a ring, so that I practice my craft more eagerly.
+
+## Exercise 2 [WB p. 27]
+
+### A
+
+1. The old man is her father.
+2. The old man is dear to young servants.
+3. The old men are dear to young servants.
+4. Old men are dear to the young servant.
+5. His mother is a righteous woman.
+6. That righteous woman is their mother.
+7. That righteous woman is dear to old men.
+8. That old woman sold good beer to the young students.
+9. The good students went home.
+10. They were righteous men and a good woman.
+
+### B
+
+1. I know one craft.
+2. I set nets in a suitable place.
+3. I catch wild animals with swift hounds.
+4. Give me a swift hound!
+5. Why [_for what reason_] do you allow the tame hawks to fly away from you?
+6. I do not wish to be with him in such hardship.
