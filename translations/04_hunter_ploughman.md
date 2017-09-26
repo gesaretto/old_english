@@ -3,9 +3,9 @@
 ### The Ploughman
 
 - What do you say, ploughman? How do you practice your craft?
-- Oh sir, I labor exceedingly! Every day I must go out at dawn. Then I must drive the oxen to the field and there yoke [them] to the plough. There is no winter so stark that I dared skulk at home: I do not dare for the eye of my master. But when I have yoked the oxen, and have fastened the plowshare and coulter to the plough, then I must plough a full acre [_cultivated field_] or more.
+- Oh sir, I labor exceedingly! Every day I must go out at dawn. Then I must drive the oxen to the field and there yoke [them] to the plough. There is no winter so stark that I dared skulk [or _stay_] at home: I do not dare for [__fear__] of my master. But when I have yoked the oxen, and have fastened the plowshare and coulter to the plough, then I must plough a full acre [_cultivated field_] or more.
 - Have you got any companion[_s_]?
-- Yes, I have a servant: that [one] must urge the oxen with the goad. That [one] is now hoarse because of the chill and the shouting.
+- Yes, I have a servant: that [one; or just __he__] must urge the oxen with [__a__] goad. That [one] is now hoarse because of the chill and the shouting.
 - What more [_else_] do you do? Have you got still more to do?
 - Yes sir, I have much to do! I must fill the bin of the oxen with hay, and [give] water [to] them, and clean their stall.
 - Oh, that is much toil!
@@ -15,9 +15,9 @@
 
 - Is this man one of your companions?
 - Yes.
-- Can you [do] any thing?
-- I can [do] one craft.
-- Which craft can you do?
+- Can you [do; __Do you know__] any thing?
+- I [__I know__] one craft.
+- Which craft can you do [__do you know__]?
 - I am a hunter.
 - Whose hunter are you?
 - I am the king's hunter.
