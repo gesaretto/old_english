@@ -8,4 +8,26 @@ Then at last it happened that the Danish people traveled with a fleet, ravaging 
 
 ### Part VII
 
+1. This plant is produced in clean downlands.
+2. With sore of the eyes, take the root of this same plant, boil [it] in water, and bathe the eyes with that water.
+3. If the head of a man were broken, take betony, the same plant, grind it into very small dust, then drink it in hot beer.
+4. Then the head heals very quickly after the drink.
+
 ### Part II
+
+1. In that same time, in that same stronghold, Martin went to the house of a man.
+2. When he was standing before the threshold,
+3. he said that he saw a terrible enemy in the chamber.
+4. Then Martin commanded the hateful devil that he depart from there.
+5. The devil became angry, seized a man, and became him on [the] inside.
+6. Then the man raved severely, and began to tear the people.
+7. Then Martin went towards the mad man.
+8. Then the man threatened that he would bite Martin with the mouth.
+9. Then Martin took his own fingers to the mad [man], into the mouth, and ordered him to devour [or: "ordered to devour it"].
+10. But the man withdrew the jaws from the holy hand, as if from hot ice.
+11. Then the holy man drove away the hateful devil from the troubled man.
+12. However, the devil could not travel through that mouth, but foully set out through his drain.
+
+## Strong Feminine Nouns (WB 40-41)
+
+### Part IV
