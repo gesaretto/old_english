@@ -27,7 +27,3 @@ Then at last it happened that the Danish people traveled with a fleet, ravaging 
 10. But the man withdrew the jaws from the holy hand, as if from hot ice.
 11. Then the holy man drove away the hateful devil from the troubled man.
 12. However, the devil could not travel through that mouth, but foully set out through his drain.
-
-## Strong Feminine Nouns (WB 40-41)
-
-### Part IV
