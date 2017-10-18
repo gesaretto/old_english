@@ -1,0 +1,11 @@
+# Ælfric's Life of St. Edmund - Vol. 4
+
+## Part I (ll. 251-282)
+
+Then, again, in a space of time, after many years, when the ravaging ceased and peace was given to the harassed folk, then they joined together and splendidly made one church for the holy [one], because frequent wonders happened at his burial place, in the chapel where he was buried. Then they wished to carry the holy body, with public honor, and lay [it] inside that church. Then [there] was great wonder that he was just as whole as if he were alive, with a clean body, and his neck, which was cut through before, was healed, and [there] was like a silken thread, red, around his neck, evidence to the people [of] how he was slain. Likewise, besides, the wounds that the fierce pagans made on his body with frequent shootings, were healed through the heavenly God; and thus he lies, sound, until the present day, waiting for resurrection and the eternal glory. His body, which lies undecayed, reveals to us that he lived here in the world without fornication, and with a clean life journeyed to Christ.
+
+Some widow, named Oswyn, dwelt at the burial place in prayer and fasting, many year afterwards, [and] that [one] wished to cut [the hair of] the saint each year, and trim his nails neatly, with love, and to hold [them] in a chest, for relics, in the altar.
+
+Then the land-folk honored the saint with faith, and Theodred the bishop solemnly endowed that monastery with gifts in gold and in silver, to give honor to the saint. Then, on some occasion, eight unhappy thieves arrived to the honorable and holy [one] on one night: they wished to steal the treasures that men had brought there, and [they] tested with craft how they might get in. Some struck the hasps mightily with a sledge [hammer], some of them with files filed around, some also dug under the door with spades, some of them with a ladder wished to unlock the window, but they labored in vain and miserably fared thus, [in] that the holy man bound them miraculously, each [one of them], so [that] he stood struggling with a tool, [and in] that none of them might accomplish that crime, nor [might] they stir thence, but stood thus until morning.  
+
+## Part II (ll. 282-316)
