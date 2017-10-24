@@ -19,3 +19,42 @@ We heard many wonders in popular speech about the holy Edmund, which we do not w
 ### Part III (The conclusion)
 
 England is not deprived of saints of the Lord, when in English land lie such saints as this holy king, and the blessed Cuthbert, and Audrey in Ely, and her sister too, uncorrupted in body, to confirm [her] faith. [There] are also many other holy [ones] in England who work many miracles (just as it is widely known) for love to the Almighty, in whom they believed. Christ makes clear to men through his famous saints that he is the Almighty God who makes such wonders, despite that the wretched Jews abandoned him entirely, because they are cursed, such as they desired themselves. [There] are not any wonders made at their graves, because they do not believe in the living Christ, but Christ makes clear to men where the true faith is, whenever he works such wonders through his holy [ones], widely throughout the earth. May the glory of this always be to him, and with his heavenly Father and the Holy Ghost. Amen.
+
+# Weak Verbs - Sentences (WB 62-63)
+
+## Exercise 1 (Everybody praises)
+
+1. The princes did [deeds of] courage.
+2. The prince did [deeds of] courage.
+3. The princes do [deeds of] courage.
+4. The prince does [deeds of] courage.
+5. You do [deeds of] courage.
+6. You did [deeds of] courage.
+7. He praises me.
+8. He praised me.
+9. They praised me.
+10. We praised you.
+11. You praise me.
+12. You praised him.
+13. You [all] praised me.
+14. You [all] praise me.
+15. I praise them.
+16. I wished that they would have praised me.
+17. I wish that she would praise him.
+18. He wished to do [deeds of] courage.
+19. He wished that we would have done [deeds of] courage.
+20. He wishes that I would do [deeds of] courage.
+21. He does [deeds of] courage.
+
+##Exercise 2 (Genesis and Colloquy)
+
+1. Afterwards God came, and they heard his voice. [Past Ind. Pl.]
+2. Adam said, "I heard your voice in Paradise." [Past Ind. 1st S.]
+3. God said, "Because you heard the voice of your wife..." [Past Ind. 2nd S.]
+4. Abraham returned to his servants and [they] fared home [with] him. [Past Ind. 3rd S.; Pl.]
+5. Give me a hawk! [Imp. Pres. 2nd S.]
+6. I give you happily, if you give me [a] fast hound. [Pres. Ind., 1st S.; 2nd sS.]
+7. I give to the king so much as I catch. [Pres. Ind., 1st S.]
+8. What does he give you? [Pres. Ind. 3rd S.]
+9. How do you feed your hawks? [Pres. Ind. 2nd S.]
+10. They feed themselves in the winter. [Pres. Ind. Pl.]
