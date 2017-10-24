@@ -46,7 +46,7 @@ England is not deprived of saints of the Lord, when in English land lie such sai
 20. He wishes that I would do [deeds of] courage.
 21. He does [deeds of] courage.
 
-##Exercise 2 (Genesis and Colloquy)
+## Exercise 2 (Genesis and Colloquy)
 
 1. Afterwards God came, and they heard his voice. [Past Ind. Pl.]
 2. Adam said, "I heard your voice in Paradise." [Past Ind. 1st S.]
